@@ -2,7 +2,9 @@
 
 ![](https://tierragamer.com/wp-content/uploads/2022/02/KonoSuba-Megumin.jpg)
 
-I love Megumin and java.
+
+About me
+I love Megumin
 
 
 
